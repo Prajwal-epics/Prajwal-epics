@@ -1,5 +1,5 @@
 # 💫 About Me:
-I' am currently looking for job sequencing
+learn to live
 
 
 ## 🌐 Socials:
